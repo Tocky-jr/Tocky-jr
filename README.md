@@ -1,5 +1,5 @@
 <h1 align="center">It's me Tocky-Jr</h1>
-<h3 align="center">ɪ ᴀᴍ ɢʜᴏsᴛ ᴏғ ᴛʜᴇ ᴡᴏʀʟᴅ </h3>
+<h3 align="center">ɪ ᴀᴍ ɢʜᴏsᴛ ᴏғ ᴛʜᴇ ᴡᴏʀʟᴅ </h3>https://i.imgur.com/evXCN3T.jpeg
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
